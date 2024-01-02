@@ -1,3 +1,3 @@
-### Hi, i´m Alexis Gastón 👋 
+### Hi, i´m Gastón Flores 👋 
 💻 Computer Systems Analyst!
 
